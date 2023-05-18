@@ -8,6 +8,10 @@ uwu
 ñwñ
 ;3
 
+
+
+KARELY RUIZ X AGENTES INTELIGENTES
+
 aña
 # LISTA DE REPOSITORIOS
 <a href="https://github.com/Jose07Rdz/JGL26" target="_blank">Jose</a>
